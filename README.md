@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Eternalglow11
+- 👀 I’m interested in Mechatronics and Blockchain Engineering
+- 🌱 I’m currently learning about Multicopter Enginnering
+- 📫 How to reach me: JackPierret11@gmail.com
+- ⚡ Fun fact: I aspire to be a Mechatronics Engineer
